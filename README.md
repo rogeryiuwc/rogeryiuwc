@@ -1,0 +1,2 @@
+- 👋 Hi, it's me roger from hongkong ,
+- 👀 I enjoy whole life working n learning n travelling for health n fun, instead of wasting life precious time doing physical exercise ???
